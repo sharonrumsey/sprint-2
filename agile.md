@@ -14,7 +14,7 @@ What the beginning looks like? How it is started? The "stories" seem to be narra
 Add your reflections on Pairing
 
 --What interests you?
-
+Pairing sounds like a social approach and is interesting to me since I like to work as a member of a team.  
 
 --What confuses you?
-
+More what would make it difficult for me is keeping clear on each role as you are doing them.  Driver is typing and Navigator guides in the right direction.  It would be hard for me not to type while navigating and difficult to type with someone watching me do so as the driver.
