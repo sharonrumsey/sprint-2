@@ -1,7 +1,7 @@
 1. Log your reflections on:
 
   1. What do you think?
-  
+  It's good to make the effort and to apply gender neutral language.  
 
   2. Do you make an effort to use gender neutral language?
 
