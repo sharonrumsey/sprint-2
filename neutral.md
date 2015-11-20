@@ -4,7 +4,7 @@
 
   2. Do you make an effort to use gender neutral language?
 
-  After reading information about the SCRUM I wonde why one titled role is called "Scrum Master"?  Not very gender neutral language.  I understand the need to promote gender neutral speech and I agree that we can do more to promote equality so that we aren't implying that only one gender is capable of work positions or roles in daily lives.  I will do my best to do more to incorporate gender neutral speech.
+  After reading information about the SCRUM I wonder why one titled role is called "Scrum Master"?  Not very gender neutral language.  I understand the need to promote gender neutral speech and I agree that we can do more to promote equality so that we aren't implying that only one gender is capable of work positions or roles in daily lives.  I will do my best to do more to incorporate gender neutral speech.
 
   3. What do you think when you hear non-gender-neutral language?
 

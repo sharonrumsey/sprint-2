@@ -1,4 +1,5 @@
 Using the contrast checker, determine whether each of the following combinations meets or fails the color contrast test foreground/background) for small or large text:
+
 1. #f0e68c / #fffacd
 2. #f08080 / #fffacd
 3. #778899 / #f5fffa
