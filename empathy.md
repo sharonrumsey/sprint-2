@@ -5,7 +5,7 @@ Log your reflections on:
 Empathy qualities -
   -perspective taking
   -the ability to take the perspective of another person (or recognize their perspective is their truth)
-  -stayinng out of judgement
+  -staying out of judgement
   -recognizing emotion in others and communicating that
 
   "Empathy is feeling with people"
